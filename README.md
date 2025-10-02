@@ -1,1 +1,2 @@
-# the-tutorial-is-too-hard
+# The Tutorial is too Hard
+Un jour normal et ennuyeux, un message apparaît, l’invitant à suivre un tutoriel. Un récit sur Lee Ho Jae et son évasion du Tutoriel. Mais il a choisi par hasard la difficulté la plus difficile possible : l’enfer.
